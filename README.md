@@ -8,7 +8,7 @@ Uhhh excuse me... let me do a quick rundown.
   
 - 🌍 **From where ?**
   
-  I'm a French student currently living in Seoul.
+  I'm a French student currently studying at ESIREM Dijon.
 
 - 📚 **Studying what ?** 
   
